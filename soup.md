@@ -1,4 +1,4 @@
-Ingredients for soup
+Ingredients for tomato soup
 
 - 4 tbs butter
 - 0.5 large onion, cut into large wedges
